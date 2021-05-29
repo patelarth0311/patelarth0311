@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @patelarth0311
+- 👋 Hi, I’m Arth. 
 - 📫 How to reach me at patelarth0311@gmail.com
 
